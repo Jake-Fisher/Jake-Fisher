@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Jake-Fisher
+- 👀 I’m interested in Nothing
+- 💞️ I’m looking to collaborate on interesting projects
+- 📫 How to reach me - DON'T
